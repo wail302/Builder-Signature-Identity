@@ -1,5 +1,5 @@
 <img width="1635" height="504" alt="signature (1)" src="https://github.com/user-attachments/assets/3dff0cf3-d9b9-4fc7-8ee9-9e6a111c85db" />
-<img width="1635" height="504" alt="signature (1)" src="https://github.com/user-attachments/assets/1b978a7c-42f0-4879-b48d-1fd4dccfd5ae" />
+<img width="1152" height="720" alt="Wael O Alanazi" src="https://github.com/user-attachments/assets/f0fec263-2769-4109-8420-1f2ce81ba395" />
 
 
 Download  : https://drive.google.com/file/d/1Q5NfTix6MivcRA3Pptqnp04QuZexo9ZO/view?usp=drive_link
